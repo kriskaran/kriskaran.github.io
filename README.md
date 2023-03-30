@@ -1,5 +1,5 @@
 # kriskaran.github.io
-My personal site
+My personal website
 
 My name is kris karan and I am a forester. I work at the Ministry of Envieronmenτ and Energy ([ΥΠΕΝ](https://ypen.gov.gr/)).
 
