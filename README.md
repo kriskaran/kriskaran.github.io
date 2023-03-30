@@ -6,11 +6,6 @@ My name is kris karan and I am a forester. I work at the Ministry of Envieronmen
 ![](https://i0.wp.com/dasarxeio.com/wp-content/uploads/2021/03/xartis.jpg?resize=700%2C445&ssl=1)
 
 
-![](https://drive.google.com/drive/folders/1vSXuSqbGNsGelyHO1pxN2EKBVgL3R-rk)
-
-
-![](images/DSC_0595.JPG)
-
 ![](images/Evoia_fire_2021_gif_2fps.gif)
 
 
